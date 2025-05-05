@@ -1,1 +1,1 @@
-# Jrishna-quote
+# Krishna-quote
